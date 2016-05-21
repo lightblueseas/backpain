@@ -1,6 +1,17 @@
 # backpain
 Some videos for heal your back pains
 
+### English
+
+ + [Exercises for Sacroiliac Joint Pain - Video 1 of 3](https://www.youtube.com/watch?v=cnKPXYSoMjM)
+ 
+ + [Exercises for Sacroiliac Joint Pain - Video 2 of 3](https://www.youtube.com/watch?v=7Kk7_2ws2vg)
+ 
+ + [Exercises for Sacroiliac Joint Pain - Video 3 of 3](https://www.youtube.com/watch?v=X9EdLD26w4o)
+
+
+### German
+
  + [Das Kreuz mit dem Kreuz: Rückenschmerzen](https://www.youtube.com/watch?v=08Y0tnIRyJg&list=PLz7clVQEcYtjJc1nQmE3QjbxapdbBRwGb&index=9)
  
  + [Schmerzen im unteren Rücken - Einrenken - ISG Blockade - Bandscheibenvorfall Vorbeugen - Übungen](https://www.youtube.com/watch?v=O_0tgCpszxI&index=10&list=PLz7clVQEcYtjJc1nQmE3QjbxapdbBRwGb) 
@@ -12,8 +23,3 @@ Some videos for heal your back pains
  
  + [Dehnung Ischias 1 - Sciatic Stretch for Pain Relief](https://www.youtube.com/watch?v=mMnxkXwqDCg&list=PLz7clVQEcYtjJc1nQmE3QjbxapdbBRwGb&index=11)
  
- + [Exercises for Sacroiliac Joint Pain - Video 1 of 3](https://www.youtube.com/watch?v=cnKPXYSoMjM)
- 
- + [Exercises for Sacroiliac Joint Pain - Video 2 of 3](https://www.youtube.com/watch?v=7Kk7_2ws2vg)
- 
- + [Exercises for Sacroiliac Joint Pain - Video 3 of 3](https://www.youtube.com/watch?v=X9EdLD26w4o)
