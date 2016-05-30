@@ -9,6 +9,9 @@ Some videos for heal your back pains
  
  + [Exercises for Sacroiliac Joint Pain - Video 3 of 3](https://www.youtube.com/watch?v=X9EdLD26w4o)
 
+### Yoga
+
+[Yoga Stretches For Back Pain & Sciatica Relief - Beginners Flexibility For Men & Women ](https://www.youtube.com/watch?v=nf6dOtqKfg8)
 
 ### German
 
@@ -25,3 +28,8 @@ Some videos for heal your back pains
  
  + [Dehnung Ischias 1 - Sciatic Stretch for Pain Relief](https://www.youtube.com/watch?v=mMnxkXwqDCg&list=PLz7clVQEcYtjJc1nQmE3QjbxapdbBRwGb&index=11)
  
+### Yoga
+
+[ Yoga Rücken: Entspannung für den unteren Rücken ](https://www.youtube.com/watch?v=kOI8VoKWckg)
+
+[Yoga Rücken Anfänger: Gesund und Stark mit Amiena Zylla](https://www.youtube.com/watch?v=k71L9bTKEvA)
