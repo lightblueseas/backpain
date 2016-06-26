@@ -35,3 +35,8 @@ Some videos for heal your back pains
 [ Yoga Rücken: Entspannung für den unteren Rücken ](https://www.youtube.com/watch?v=kOI8VoKWckg)
 
 [Yoga Rücken Anfänger: Gesund und Stark mit Amiena Zylla](https://www.youtube.com/watch?v=k71L9bTKEvA)
+
+
+### 5 minuten Yoga
+
+[Yoga Übungen gegen Akute Rückenschmerzen - Fit in 5...](https://www.youtube.com/watch?v=0_Gfs0dLGEc)
