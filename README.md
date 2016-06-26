@@ -40,3 +40,4 @@ Some videos for heal your back pains
 ### 5 minuten Yoga
 
 [Yoga Übungen gegen Akute Rückenschmerzen - Fit in 5...](https://www.youtube.com/watch?v=0_Gfs0dLGEc)
+[Pilates Übungen: Gegen Akute Rückenschmerzen - Fit in 5...](https://www.youtube.com/watch?v=CIS9uM7ihyI)
